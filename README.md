@@ -55,7 +55,7 @@ I build **landing pages, dashboards, games, Web3 apps**, and **full-featured pla
 
 - 📧 Email: tavadzed@gmail.com
 - 🌍 LinkedIn: [linkedin.com/in/david-tavadze-19361753](https://www.linkedin.com/in/david-tavadze-19361753)
-- 🐦 Twitter: [@tavadzed](https://twitter.com/tavadzed)
+- 💬 Telegram: [@black_sokrat](https://t.me/black_sokrat)
 
 ---
 
